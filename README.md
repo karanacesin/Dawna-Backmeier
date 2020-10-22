@@ -12,6 +12,6 @@ Outside of coding I enjoy the following: <br />
   -inhancing my ASL skills and talking with people from the deaf community <br />
   
 
-For more information about me take a look at my Linkedin profile https://www.linkedin.com/in/karanacesin/
+For more information about me take a look at my Linkedin profile https://www.linkedin.com/in/karanacesin/ or my personal site https://dawnabackmeier.netlify.app/
 
 For any questions contact me at karanacesin@yahoo.com
